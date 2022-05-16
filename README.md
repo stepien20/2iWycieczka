@@ -4,7 +4,7 @@
 ### W środę oraz piątek miałem wizytę u lekarza co skutecznie powstrzymało mnie od pojawienia się w szkole.
 
 
-## **Czego żałuję, że nie pojechałem na wycieczke:**
+## **Czego żałuję, że nie pojechałem na wycieczkę:**
 
 ### -Nie spędziłem czasu z kolegami
 ### -Nie spędziłem aktywnie czasu(np chodzenie po górach)
