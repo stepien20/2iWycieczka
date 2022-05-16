@@ -9,4 +9,5 @@
 ### -Nie spędziłem czasu z kolegami
 ### -Nie spędziłem aktywnie czasu(np chodzenie po górach)
 ### -Że się nie zmoczyłem na pontonach (bo nawet nie moge się zmoczyć)
-### -
+### -Że  się nie zintegrowałem
+### -Że nie było mnie na grillu
